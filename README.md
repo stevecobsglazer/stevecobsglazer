@@ -8,9 +8,9 @@
 </p>
 <p align="center">
   <a href="https://tshirtawarenessday.atabook.org/" target="_blank">1</a>
-  <a href="https://imshartingohgodd.carrd.co/" target="_blank">2</a>
+  <a href="https://en.pronouns.page/@stevexgarretyaoi" target="_blank">2</a>
   <a href="https://tshirtawarenessday.straw.page/" target="_blank">3</a>
-  <a href="https://en.pronouns.page/@stevexgarretyaoi" target="_blank">4</a>
+  <a href="https://inanimateinsanity.fandom.com/wiki/Steve_Cobs" target="_blank">4</a>
   <a href="https://badthings.fandom.com/wiki/Andrew" target="_blank">5</a>
 </p>
 <p align="center"> 
