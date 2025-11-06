@@ -4,7 +4,7 @@
   </p>
   
 <p align="center"> 
-<img src="https://komarev.com/ghpvc/?username=stevecobsglazer&label=︵₊_gazers%20&color=yellow" alt="cookies  view counter">
+<img src="https://komarev.com/ghpvc/?username=andrew-badthings&label=︵₊_gazers%20&color=yellow" alt="cookies  view counter">
 </p>
 <p align="center">
   <a href="https://tshirtawarenessday.atabook.org/" target="_blank">1</a>
