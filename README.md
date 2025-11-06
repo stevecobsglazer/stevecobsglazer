@@ -14,7 +14,7 @@
   <a href="https://x.com/JustHyix/status/1973732771882557537" target="_blank">pfp creds</a>
 </p>
 <p align="center"> 
-  <img width="700" height="700" alt="Untitled20_20251105121204__fliter--spring-grass__channel--red__mode--normal" src="https://github.com/user-attachments/assets/2337e53e-c234-442f-aee7-2fcde512b65c" />
+  <img width="700" height="700" alt="https://i.postimg.cc/mkcXbT5z/ezgif-4ffa2fd294eb06.gif" src="https://github.com/user-attachments/assets/2337e53e-c234-442f-aee7-2fcde512b65c" />
 </p>
 
 <p align="center"> 
