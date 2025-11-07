@@ -7,12 +7,11 @@
 <img src="https://komarev.com/ghpvc/?username=andrew-badthings&label=︵₊_idiots%20&color=yellow" alt="cookies  view counter">
 </p>
 <p align="center">
-  <a href="https://tshirtawarenessday.atabook.org/" target="_blank">1</a>
-  <a href="https://en.pronouns.page/@stevexgarretyaoi" target="_blank">2</a>
-  <a href="https://badthings.fandom.com/wiki/Andrew" target="_blank">3</a>
-  <a href="https://tshirtawarenessday.straw.page/" target="_blank">4</a>
-  <a href="https://rentry.co/ifeelcold" target="_blank">5</a>
-  <a href="https://x.com/JustHyix/status/1973732771882557537" target="_blank">pfp creds</a>
+  <a href="https://tshirtawarenessday.atabook.org/" target="_blank">ata</a>
+  <a href="https://en.pronouns.page/@stevexgarretyaoi" target="_blank">prnspage</a>
+  <a href="https://tshirtawarenessday.straw.page/" target="_blank">strawpage</a>
+  <a href="https://rentry.co/ifeelcold" target="_blank">rentry</a>
+  <a href="https://badthings.fandom.com/wiki/Andrew" target="_blank">fictkin</a>
 </p>
 <p align="center"> 
   <img width="700" height="700" alt="https://i.postimg.cc/mkcXbT5z/ezgif-4ffa2fd294eb06.gif" src="https://github.com/user-attachments/assets/2337e53e-c234-442f-aee7-2fcde512b65c" />
