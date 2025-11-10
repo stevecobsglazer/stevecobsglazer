@@ -10,7 +10,7 @@
   <a href="https://tshirtawarenessday.atabook.org/" target="_blank">ata</a>
   <a href="https://en.pronouns.page/@stevexgarretyaoi" target="_blank">prnspage</a>
   <a href="https://tshirtawarenessday.straw.page/" target="_blank">strawpage</a>
-  <a href="https://rentry.co/ifeelcold" target="_blank">rentry</a>
+  <a href="https://rentry.co/andrew-badthings" target="_blank">rentry</a>
   <a href="https://badthings.fandom.com/wiki/Andrew" target="_blank">fictkin</a>
 </p>
 <p align="center"> 
